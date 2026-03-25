@@ -1,4 +1,4 @@
-### 👋 Hi, I’m Malaz Abdalla (@MalazElfadill)
+### 👋 Hi, I’m Malaz Elfadil (@MalazElfadill)
 
 💡 **Data Analyst | Business Intelligence Specialist**
 
